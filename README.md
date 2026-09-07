@@ -1,1 +1,1 @@
-# Personal Website: [niroulasubodh.github.io](niroulasubodh.github.io])
+# [Personal Website](https://subodhniroula.com.np/)
